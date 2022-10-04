@@ -2,7 +2,7 @@
 
 <br>
 
-### I'm a Brazilian Software engineer, passionate about technology, video games🎮 and board games🎲, and a dark mode user🌙.
+### I'm a Brazilian Software engineer, passionate about technology, video and board games 🎮 🎲, and a dark mode user🌙.
 
 <br>
 
